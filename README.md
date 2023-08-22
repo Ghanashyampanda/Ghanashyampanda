@@ -1,4 +1,3 @@
-![MasterHead](https://github.com/Ghanashyampanda/Ghanashyampanda/blob/main/Blue%20Geometric%20Technology%20LinkedIn%20Banner%20(1).gif)
 <h1 align="center">Hi 👋, I'm Ghanashyam Panda</h1>
 <h3 align="center">A Software Development Role from India .</h3>
 
