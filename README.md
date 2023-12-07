@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ghanashyampanda07@gmail.com**
 
-- 📄 Know about my experiences/CV [https://drive.google.com/file/d/1a8U9JmzhnUdI8ntQCE40hmIjYTZchppL/view?usp=drivesdk](https://drive.google.com/file/d/1a8U9JmzhnUdI8ntQCE40hmIjYTZchppL/view?usp=drivesdk)
+- 📄 Know about my experiences/CV [https://drive.google.com/file/d/1e6MU5fDRq38L78T9GbWj6iPe-vMXnZRX/view?usp=drive_link](https://drive.google.com/file/d/1e6MU5fDRq38L78T9GbWj6iPe-vMXnZRX/view?usp=drive_link)
 
 - ⚡ Fun fact **I am so funny🫠🫠**
 
